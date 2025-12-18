@@ -1,4 +1,4 @@
-Privacy Policy for UniSync Fitness
+Privacy Policy for UniSync Fitness 
 
 Last updated: December 2025
 
